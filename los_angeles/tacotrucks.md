@@ -22,6 +22,13 @@ Mariscos Jalisco | 3040 E. Olympic Blvd<br />Boyle Heights | 9am-5:30pm Mon-Sun 
 El Taquito Mexicano | 510 S. Fair Oaks Ave.<br />Pasadena | 6pm-12:30am Mon-Thu<br />6pm-2:45am Fri-Sat<br />5pm-12:30am Sun | truck | great lengua and cabeza tacos |
 Chicas Tacos | 728 S. Olive St.<br />DTLA | 10:30am-10:30pm Mon-Thu<br />10:30am-1:30am Fri<br />10:30am-3pm Sat | restaurant | fish taco topped with Caesar salad |
 Sonoratown | 208 E. 8th St.<br />DTLA | 11am-4pm Tue-Sat | restaurant | great flour tortillas, serves chimichangas |
+Arandinos Tacos El Patron | 619 E Valley Blvd<br />San Gabriel | 5:00pm-12:30am	Mon-Sun | truck | mulitas |
+Tacos El Pollo | 3698 E Colorado Blvd<br />Pasadena | 6:00pm-1:00am	Sun-Thu<br />6:00pm-3:00am Fri-Sat | truck | $1.50 tacos<br />Recommend asada and pollo |
+Tacos La Doña | 1212 E Las Tunas Dr<br />San Gabriel | 7:00pm-1:00am Sun-Thu<br />7:00pm-3:00am Fri-Sat | truck | $1/$1.25 tacos<br />Recommend asada, cabeza, and pollo |
+Tacos La Doña | 820 E Duarte Rd<br />Monrovia | 6:00pm-2:00am	Tue-Sun<br />Closed Mondays | truck | Same truck owners as the San Gabriel truck |
+Tacos Ensenada | 345 W Sierra Madre Blvd<br />Sierra Madre | 10:00am-10:00pm Mon-Sun | restaurant | $1 fish tacos (Tuesdays)<br />$1 meat tacos (Thursdays) |
+Tacos Ensenada | 2171 E Huntington Dr<br />Duarte | 9:00am-10:00pm Mon-Sun | restaurant | $1 fish tacos (Tuesdays)<br />$1 meat tacos (Thursdays) |
+Avenue 26 Taco Stand | W Ave 26 Humboldt St<br />Lincoln Heights | 5:00pm-12:00am	Sun-Thu<br />5:00pm-1:00am Fri-Sat | cart | $1 tacos<br />Recommend Al Pastor. Search for the grilled onions and ask for free potatoes! |
 
 Confirm info:
 * El Kamazutra Tortas near melrose and north Vermont Friday-sat 7pm 2 am also mon-sat lunch
